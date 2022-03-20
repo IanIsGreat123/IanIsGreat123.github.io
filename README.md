@@ -1,3 +1,7 @@
 # ianisgreat123.github.io
 
-minecraft ripped from eaglercraft, made by LAX1DUDE
+Like what am i suppose to say here
+
+"life is too hard"
+
+-me, 202x
